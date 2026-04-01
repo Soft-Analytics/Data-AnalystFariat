@@ -1,1 +1,1 @@
-# Data-AnalystFariat
+I'm a Data Analyst skilled in Excel and PowerBi. I specialized in statistical modeling, transforming messy spreadsheets into clear, visual stories. Helping you save time and eliminate guesswork through professional data visualization and analysis."# Data-AnalystFariat
